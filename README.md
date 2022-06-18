@@ -1,6 +1,7 @@
+![I am a Web Developer and Wordpress Expert](https://media-exp1.licdn.com/dms/image/C4E16AQFenCMVacR57w/profile-displaybackgroundimage-shrink_350_1400/0/1630271547650?e=1660780800&v=beta&t=XEBhCsgccx_wOpuPBPeHrsU1xjwN0hC-7dsj3UtPUXc)
 ### Hi there 👋, I am Fahad Ahmed
 #### I am a Web Developer and Wordpress Expert
-![I am a Web Developer and Wordpress Expert](https://media-exp1.licdn.com/dms/image/C4E16AQFenCMVacR57w/profile-displaybackgroundimage-shrink_350_1400/0/1630271547650?e=1660780800&v=beta&t=XEBhCsgccx_wOpuPBPeHrsU1xjwN0hC-7dsj3UtPUXc)
+
 
 I am Fahad Ahmed, a skilled and creative Web Design and developer with more than 5 years of experience. I am efficient in all kinds of popular wordpress themes. I can customize wordpress themes, set up plugins, develop themes.Always committed to giving ultimate customer support in every step from the initial meeting with clients to the website maintenance even after the project submission.
 
